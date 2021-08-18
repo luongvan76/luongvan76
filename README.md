@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Kise.
+- 👀 I’m interested in IT.
+- 🌱 I’m currently learning University.
+- 💞️ I’m looking to collaborate on Facebook.
+- 📫 How to reach me: www.facebook.com/lcvan76.
